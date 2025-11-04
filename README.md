@@ -8,14 +8,13 @@ Helping businesses grow through reliable virtual support and strong client relat
 
 ## 👋 About Me
 
-Hi, I'm **Lawrence R. Palabrica**, a dedicated **Virtual Assistant and Customer Support Specialist** with over **3 years of experience** working with clients in the **US and Australia**.  
+Hi, I'm **Lawrence R. Palabrica**, a dedicated **Virtual Assistant and Customer Support Specialist** With over 3 years in customer support, sales, and administrative assistance, I’ve helped businesses streamline workflows, boost customer engagement, and close more deals. I bring a balance of professionalism, adaptability, and problem-solving skills to every task—whether managing client inquiries, booking appointments, or coordinating projects efficiently.  
 
 I specialize in helping entrepreneurs and small businesses boost their productivity, streamline customer communication, and increase revenue through efficient, high-quality virtual support.
 
 🏆 **Achievements:**
-- Top Agent for 4 consecutive months  
-- 99% scorecard in performance metrics  
-- 53 highest monthly sales record  
+- Sales Growth: Converted 30% of outbound calls into sales for key accounts.  
+- Efficiency Boost: Reduced customer response time by 20%    
 - Certified for outstanding customer service and professionalism  
 
 ---
@@ -68,5 +67,6 @@ As a proven top-performing virtual assistant, I take pride in understanding each
 
 ### 🧩 Portfolio Website
 
-👉 Visit my live portfolio: **[https://github.com/lawrencerefugio-web](#)**  
+👉 Visit my live portfolio: **[(https://www.onlinejobs.ph/jobseekers/info/2714022)](#)**  
+
 
